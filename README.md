@@ -1,1 +1,1 @@
-![utkarsh_auditss-removebg-preview](https://github.com/user-attachments/assets/45dd0446-f762-4780-a0e9-f60c15acec3c)
+![utkarsh_auditss](https://github.com/user-attachments/assets/0c564dfe-2438-4ac1-a1d0-d704bf9450d2)
